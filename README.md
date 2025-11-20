@@ -1,2 +1,3 @@
-# creation
-what I was show
+# Creation
+
+What I was shown...
